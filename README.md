@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sjdoneape
+- 👀 I’m interested in VR
+- 🌱 I’m currently learning about AI and Machine learning
+- 📫 How to reach me sjd@oneape.xyz
